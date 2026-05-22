@@ -1,0 +1,1 @@
+#shapino categori
